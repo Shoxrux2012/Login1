@@ -1,1 +1,1 @@
-# Login1
+#qara uka mut tushundingmi sheppi
